@@ -1,2 +1,7 @@
 # hello-world
-Humble beginnings and a true write of passage. ^_^
+Humble beginnings and a true right of passage. ^_^
+
+*Greetings Earthlings*
+
+
+- **CarmenRocks**
